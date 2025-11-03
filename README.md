@@ -4,3 +4,4 @@ immersive art piece
 ## Materials I used is touch designer on my labtop and opperators on the site. 
 <img width="1066" height="615" alt="Screenshot 2025-10-31 105348" src="https://github.com/user-attachments/assets/e590b534-8788-4353-9e47-ca5cdd678d05" />
 <img width="650" height="596" alt="Screenshot 2025-10-31 105404" src="https://github.com/user-attachments/assets/2ba4deca-0eaa-4bb7-83d9-f7e0ef0341bd" />
+https://github.com/user-attachments/assets/d8a129e1-48e2-4d14-b7b7-113ab1cf0f52
